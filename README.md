@@ -1,3 +1,7 @@
 # Blooket-Hackss
 Click This Link!
-https://sites.google.com/view/blookethackss/home
+https://pastebin.com/hWmdNWGj Get Anwsers Correct! <---
+
+https://pastebin.com/FxXf2kvJ Add Tokens! <---
+
+https://pastebin.com/8eQf6pDh Get all Blooks! <---
