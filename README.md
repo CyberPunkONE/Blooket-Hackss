@@ -7,3 +7,20 @@ Click These Links!
 
 
 [Get All Awnsers.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121887/Get.All.Awnsers.txt)
+
+GOLD QUEST
+
+[GetGold.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121908/GetGold.txt)
+
+[ChestESP.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121912/ChestESP.txt)
+
+**************************** 
+
+Tower Defence
+[GetCash.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121920/GetCash.txt)
+
+[ChangeRound.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121925/ChangeRound.txt)
+
+[KillEnemies.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121930/KillEnemies.txt)
+
+**************************************************************************************
