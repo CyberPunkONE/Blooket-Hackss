@@ -103,7 +103,7 @@ https://discord.gg/aB2X5GEu
 
 ********************************************
 
-Credits to my Friend Glixzzy :)
+Credits to my Glixzzy :)
 
 And SchoolCheats.net :)
 
