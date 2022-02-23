@@ -56,9 +56,7 @@ PATCHED HACKS (THESE DONT WORK ANYMORE)
 
 ***********************************************
 
-Credits to Glixzzy :)
-
-And SchoolCheats.net :)
+Credits to Glixzzy and SchoolCheats.net for helping me!!:)
 
 ******************************************
 
