@@ -25,3 +25,10 @@ Tower Defence
 [KillEnemies.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121930/KillEnemies.txt)
 
 **************************************************************************************
+
+Fishing
+
+[SetWeight.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121943/SetWeight.txt)
+
+***************************************************************************
+
