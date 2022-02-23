@@ -1,2 +1,3 @@
 # Blooket-Hackss
-Click The Read Me file for Basic Hacks
+Click This Link!
+https://sites.google.com/view/blookethackss/home
