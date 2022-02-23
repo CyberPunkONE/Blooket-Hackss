@@ -107,4 +107,14 @@ Credits to Glixzzy :)
 
 And SchoolCheats.net :)
 
+******************************************
+
+PATCHED HACKS (THESE DONT WORK ANYMORE)
+
+[PATCHEDHACK.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8126278/PATCHEDHACK.txt)
+
+**********************************************
+
+
+
 
