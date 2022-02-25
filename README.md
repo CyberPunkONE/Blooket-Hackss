@@ -41,6 +41,14 @@ Fishing
 
 ************************************************************************
 
+TOWER OF DOOM!!
+
+[MaxStats.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8143350/MaxStats.txt)
+
+[LowerAllEnemyStats.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8143354/LowerAllEnemyStats.txt)
+
+[AddCoins.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8143359/AddCoins.txt)
+
 
 Support:
 
