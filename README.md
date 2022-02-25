@@ -1,6 +1,6 @@
 # Blooket-Hackss
 
-Gold quest just updated and Get tokens just updated
+Gold quest and tower of doom just updated and Get tokens just updated
 
 Click These Links!
 
