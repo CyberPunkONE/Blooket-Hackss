@@ -1,5 +1,13 @@
 # Blooket-Hackss
 
+LIMITED TIME: GOD MODE!!
+
+CREATED BY @Nato
+
+[GODMODE.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8145649/GODMODE.txt)
+
+
+
 Gold quest and tower of doom just updated and Get tokens just updated
 
 Click These Links!
