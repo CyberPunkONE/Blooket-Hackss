@@ -2,7 +2,7 @@
 
 LIMITED TIME: GOD MODE!!
 
-CREATED BY @Nato
+CREATED BY ME!
 
 [OPGODMODE.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8145681/OPGODMODE.txt)
 
