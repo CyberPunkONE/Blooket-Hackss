@@ -4,7 +4,8 @@ LIMITED TIME: GOD MODE!!
 
 CREATED BY @Nato
 
-[GODMODE.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8145649/GODMODE.txt)
+[OPGODMODE.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8145681/OPGODMODE.txt)
+
 
 
 
