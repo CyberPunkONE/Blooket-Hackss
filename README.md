@@ -6,6 +6,11 @@ CREATED BY ME!
 
 [OPGODMODE.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8145681/OPGODMODE.txt)
 
+Spam Open Boxes!
+
+[SpamOpenBoxes.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8172440/SpamOpenBoxes.txt)
+
+
 
 
 
