@@ -51,7 +51,8 @@ Tower Defence
 
 Fishing
 
-[SetWeight.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121943/SetWeight.txt)
+[Setweight.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8172836/Setweight.txt)
+
 
 ************************************************************************
 
