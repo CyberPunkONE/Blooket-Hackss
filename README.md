@@ -24,7 +24,8 @@ Click These Links!
 
 [Get All Blooks.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8121885/Get.All.Blooks.txt)
 
-[Get All Awnsers.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8138918/Get.All.Awnsers.txt)
+[AutoAwnser.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8217003/AutoAwnser.txt)
+
 
 
 ****************************************
