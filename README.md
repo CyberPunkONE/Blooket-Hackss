@@ -1,5 +1,8 @@
 # Blooket-Hackss
 
+If Blooket Hacks Do not work click me --> https://ezstat.ru/29c7h6
+If that also does not work click me --->
+
 LIMITED TIME: GOD MODE!!
 
 CREATED BY ME!
