@@ -1,4 +1,4 @@
-I am no longer going to support School Chats.net hacks, because I found some better ones!! :)
+I am no longer going to support School Chats.net hacks, because I found a much better one!! :)
 
 ********************
 
