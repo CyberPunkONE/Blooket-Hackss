@@ -1,5 +1,7 @@
 I am no longer going to support School Chats.net hacks, because I found a much better one!! :)
 
+Also, I am going to be making custom hacks in the upcoming weeks!! ROAD TO 1k SUBS!!
+
 ********************
 
 READ THIS BEFORE USE!!
