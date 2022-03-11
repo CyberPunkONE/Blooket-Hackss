@@ -4,6 +4,10 @@ Also, I am going to be making custom hacks in the upcoming weeks!! ROAD TO 1k SU
 
 ********************
 
+Credits to gBasil Here is his website!
+
+https://www.gbasil.dev/blooket
+
 READ THIS BEFORE USE!!
 
 SUBSCRIBE TO MY CHANNEL AND READ DIRECTIONS ON HOW TO USE
