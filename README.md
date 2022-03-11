@@ -1,7 +1,9 @@
 I am no longer going to support School Chats.net hacks, because I found a much better one!! :)
 
 
-Credits to gBasil Here is his website!
+Credits to Basil Here is his website
+
+Do not dm me if you have a problem with this reprository just be thankful  that more people can use it now :)
 
 https://www.gbasil.dev/blooket
 
@@ -114,11 +116,3 @@ Here is the Code!
 
 [Blookets Most OverPowered Hacks!!.txt](https://github.com/CyberPunkONE/Blooket-Hackss/files/8228308/Blookets.Most.OverPowered.Hacks.txt)
 
-
-
-
-Credits to gBasil
-
-Here is his website
-
-https://www.gbasil.dev/blooket
